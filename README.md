@@ -1,2 +1,2 @@
 # Investigacion-Reactiva-
-actualizacion de actividad 9/1/2024
+actualizacion de actividad 14/1/2024
